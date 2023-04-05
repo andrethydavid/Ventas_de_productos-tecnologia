@@ -1,0 +1,2 @@
+# VENTAS DE TECNOLOGIA 🛒📱
+
