@@ -10,4 +10,3 @@
  🤝👥💼4. En general, los tres productos más vendidos que menciona son necesarios para el desarrollo de actividades cotidianas tanto en el ámbito laboral como en el personal. Cada uno de ellos se enfoca en un mercado específico, pero todos comparten la necesidad de ser eficientes y de alta calidad para satisfacer las necesidades de los usuarios👥💻📝. 
  La oferta y demanda de estos productos están en constante evolución, y es importante que los fabricantes sigan innovando y mejorando para mantenerse en la cima del mercado📈💡🚀. 
 
-![image](https://user-images.githubusercontent.com/72534486/230699912-b559abba-ed3e-42b3-b4a3-f0bd6e44b07b.png)
